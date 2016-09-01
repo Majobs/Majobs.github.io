@@ -1,1 +1,1 @@
-# Majobs.github.io
+# [Majobs](https://Majobs.github.io)
